@@ -12,7 +12,7 @@ ___________________________________________________
  but on the business of the business world.
 
  A marketing statement is often "performed" at a meeting
- of other individuals (investors or clients) in an effot
+ of other individuals (investors or clients) in an effort
  to proclaim that the money spent on the marketing team
  is money well spent for the company and that the progress
  of whatever project is still running smoothly.
